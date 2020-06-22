@@ -6,3 +6,4 @@ Peter Michael Falk (September 16, 1927 – June 23, 2011) was an American actor 
 * actor
 As Peter Falk said:
 > I don't remember quotes
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/4/4c/Columbo_Peter_Falk_1973.JPG/220px-Columbo_Peter_Falk_1973.JPG"/>
